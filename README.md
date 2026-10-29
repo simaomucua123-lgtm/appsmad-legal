@@ -1,1 +1,0 @@
-# appsmad-legal
